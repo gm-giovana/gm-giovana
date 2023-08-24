@@ -1,4 +1,4 @@
-### bem vindas ao meu perfil 💙
+### bem vindos ao meu perfil 💙
 
 meu nome é Giovana
 
